@@ -1,4 +1,4 @@
-## Two truths and a Lie
+## Three truths
 
 My favorite rapper is J.Cole.
 
